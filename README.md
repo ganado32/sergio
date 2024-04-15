@@ -1,3 +1,0 @@
-# sergio
-
-sergio x2
